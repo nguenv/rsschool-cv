@@ -1,1 +1,1 @@
-# rsschool-cv
+https://nguenv.github.io/rsschool-cv/cv
